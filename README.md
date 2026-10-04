@@ -45,6 +45,7 @@ Mansour Al-Salimi’s recitations are valued because they are slow, clear, and e
 – for memorization by children and new Muslims
 – for creating a calm, spiritually focused atmosphere
 – for listening before sleep or during commutes
+– Video duration : 1:20:07
 
 **Spiritual purpose**
 The purpose of adhkar is to keep the heart connected to God throughout the day, reduce anxiety, increase gratitude, seek protection from harm and evil, and earn reward. The Qur’an says: *”Verily, in the remembrance of Allah do hearts find rest”* (13:28).
